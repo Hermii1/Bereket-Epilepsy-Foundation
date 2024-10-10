@@ -1,1 +1,1 @@
-# Bereket-Epilepsy-Foundation
+# NGO project
